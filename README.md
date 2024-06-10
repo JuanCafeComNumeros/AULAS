@@ -10,8 +10,8 @@ Juan
 
 - Eu gosto de ouvir musica(Melanie Martinez), desenhar, jogar minecraft 🫀
 
-   💗![melanie](https://github.com/JuanCafeComNumeros/AULAS/assets/170974284/2f7acfba-af52-47ba-a06e-6fc23352d509)
-
+   💗![melanie](https://github.com/JuanCafeComNumeros/AULAS/assets/170974284/2f7acfba-af52-47ba-a06e-6fc23352d5092)
+  
 *Você pode entrar em contato comigo para:*
 - Conversar, jogar
 - se quiser eu te faço uma PizelArt
